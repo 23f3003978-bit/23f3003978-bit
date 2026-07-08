@@ -12,4 +12,4 @@
 ## Connect with Me
 
 * Email: aaronpereira188@gmail.com
-* LinkedIn: https://linkedin.com/in/aaron-pereira-55b4972a6
+* LinkedIn: https://linkedin.com/in/aaron-p7
