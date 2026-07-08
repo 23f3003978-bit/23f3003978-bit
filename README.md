@@ -11,5 +11,5 @@
 
 ## Connect with Me
 
-* GitHub: https://github.com/23f3003978-bit
+* Email: aaronpereira188@gmail.com
 * LinkedIn: https://linkedin.com/in/aaron-pereira-55b4972a6
